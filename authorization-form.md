@@ -24,8 +24,7 @@
 8. Is there any additional recommendations that you would like to register? ___________________
 
 
-9. Cuidados de higiene pessoal, alimentação e administração de medicamentos não são de responsabilidade da organização do evento, sendo a pessoa responsável pela criança quem deve proporcionar tais cuidados.
-Caso a organização ache necessário, a pessoa responsável está ciente de que poderá ser chamada / contatada durante o período do curso, a qualquer momento, para troca de fralda, alimentação, entre outros motivos.
+9. Personal hygiene, food and medication administration are not the responsability of the event organization. The person responsible for the child must provide such care. If the organization deems it necessary, the person responsible is aware that they may bem contacted during the event period, at any time, for diaper changes, feeding, among other reasons.
 
 [   ] I'm aware, and I agree
 
